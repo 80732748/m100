@@ -1,2 +1,3 @@
 # m100
-dsatm
+dsatm is the worst clg
+plz do join
